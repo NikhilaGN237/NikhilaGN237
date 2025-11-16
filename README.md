@@ -68,7 +68,7 @@ Analyzed NYC Airbnb listings to uncover trends in pricing, reviews, and host per
 
 ## 🤝 Connect with Me
 
-📧 Email: [nikhilagayathrin@gmail.com](mailto:nikhilagayathrin@gmail.com)  
+📧 Email: [nikhilagayathrin@gmail.com](mailto:nikhilanalabolu@gmail.com)  
 🔗 LinkedIn: [linkedin.com/in/nikhila-gayathri-n-a7a633188](https://www.linkedin.com/in/nikhila-gayathri-n-a7a633188/)
 
 ---
